@@ -1,1 +1,1 @@
-Collection of scrap note
+Collection of scrap notebooks
